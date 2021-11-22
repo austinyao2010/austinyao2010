@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AustinYao.
-- 👀 I’m interested in basketball.
+- 👀 I’m interested in basketball, tennis and swimming
 - 🌱 I’m currently learning math, coding, and reading
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me is to send me an email at austin2010.yao@outlook.com
